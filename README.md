@@ -1,1 +1,1 @@
-# JoshStroud.com – Now Free Of Spam :) 
+# [JoshStroud.com](https://joshstroud.com) – Now Free Of Spam :) 
